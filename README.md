@@ -1,0 +1,2 @@
+# Examen_2unidad_Alfaro_Ibarrra_Sheccid_3w_1171
+EXAMEN
